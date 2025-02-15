@@ -37,7 +37,7 @@ By encouraging food redistribution at a **discounted price (20-30%)**, CarbonPop
 
 ### ✅ **For Businesses (HoReCas & Supermarkets)**  
 Want to participate? It's **completely free** to start.  
-📥 **[Sign Up Here](#)** (Link to onboarding form or website)  
+You are free to print and distribute as many of our pamphlets as you like! Simply include them with online delivery app orders or hand them out to in-person diners and shoppers who purchase unsold food.
 
 ### ✅ **For Customers**  
 The best way to support CarbonPop is by **purchasing unsold food** from participating businesses. Every meal saved helps reduce waste!  
